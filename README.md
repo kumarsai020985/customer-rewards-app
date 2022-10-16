@@ -1,4 +1,3 @@
-From SR Tech to Everyone 10:32 AM
 Customer-Rewards Program :
 
 In Memory Details:
